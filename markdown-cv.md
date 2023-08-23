@@ -1,3 +1,5 @@
+![Fuad's img](Fuad.jpeg)
+
 # Fuad Abou Heit
 Phone: *961 71 879 038* | Email: *F.abouheit@gmail.com* | Location: Tripoli, Lebanon
 
